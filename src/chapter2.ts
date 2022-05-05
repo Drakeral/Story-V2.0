@@ -1,1 +1,1 @@
-It was the age of wisdom it was the age of fooliushness
+It was the age of wisdom it was the age of alienness

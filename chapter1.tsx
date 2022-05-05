@@ -1,1 +1,1 @@
-It was the best of TimeRanges, it was the worst of TimeRanges.
+It was the best of space, it was the worst of galazy.
